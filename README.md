@@ -5,7 +5,7 @@
 ---
 <h1>
   PONYTOWN INFO !
-  <img src="https://files.catbox.moe/l0261r.gif" width="30px"/>
+  <img src="https://files.catbox.moe/0gajdm.gif" width="40px"/>
 </h1>
 
 ![](https://komarev.com/ghpvc/?username=p3rkcrds&color=brightgreen)
