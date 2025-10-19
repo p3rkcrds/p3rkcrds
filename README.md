@@ -17,7 +17,7 @@
 
 <div align="center">
   
-You can **c + h**, I don't really care <br> I **don't friend easily**, just get to know me better !! <br> I tend to be **shy** and **awkward** around people I don't know well <br> You can usually find me near **docks** or at the **DC/MARVEL** area beside the bakery <br> I go **AFK/offtab** more often than not, so **whisper me** to interact and I'll try to respond ASAP
+Please ask about **c + h** beforehand <br> I **don't friend easily**, just get to know me better !! <br> I tend to be **shy** and **awkward** around people I don't know well <br> You can usually find me near **docks** or at the **DC/MARVEL** area beside the bakery <br> I go **AFK/offtab** more often than not, so **whisper me** to interact and I'll try to respond ASAP
 </div>
 
 <div align="center">
