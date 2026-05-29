@@ -17,7 +17,7 @@
 
 <div align="center">
   
-Please ask about **c + h** beforehand <br> I **don't friend easily**, just get to know me better !! <br> I tend to be **shy** and **awkward** around people I don't know well <br> You can usually find me near **docks** or at the **DC/MARVEL** area beside the bakery <br> I go **AFK/offtab** more often than not, so **whisper me** to interact and I'll try to respond ASAP
+I'm only on **safe server**!! <br> I'm really **not that talkative**, so sorry! <br> I don't rlly care about **c + h**, you can do whatever <br> I tend to be **shy** and **awkward** around people I don't know well <br> You can usually find me near **docks** or at the **Countryhumans** area near the bakery <br> I go **AFK/offtab** more often than not, so **whisper me** to interact and I'll try to respond ASAP
 </div>
 
 <div align="center">
@@ -27,7 +27,7 @@ Please ask about **c + h** beforehand <br> I **don't friend easily**, just get t
 
 <div align="center">
   
-[Basic DNI Criteria](https://basic-dni.crd.co/) <br> Venting without asking <br> If you're a **toxic person** in general
+[Basic DNI Criteria](https://basic-dni.crd.co/) <br> If you're a **toxic person** in general
 </div>
 
 <div align="center">
